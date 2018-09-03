@@ -1,2 +1,2 @@
 # not-skynet
-First thing I do here :v
+I'm new to this stuff
